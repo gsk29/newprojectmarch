@@ -1,6 +1,12 @@
-# newprojectmarch
+Day 1 
+Pattaya Floating Market
 
-04/03/2024 
+Tiger park
 
-abcdefgh
-qwertyggg
+Checkin hotel 
+
+under water museum 
+
+The Sanctuary Of Truth
+
+Big Buddha Temple
